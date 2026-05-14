@@ -1,4 +1,4 @@
-#  
+#  ultimate Scripts for dragon adventures is the best dragon adventures Script, featuring auto-upgrade and infinite resources. Safe and powerful for all
 
 
 
